@@ -1,6 +1,8 @@
-# Hello-World
+Cao dobar dan!
 
-Hi Humans!
+I VAMA TAODJEK!!!
+
+And sth more :)
 
 I am here!
 
